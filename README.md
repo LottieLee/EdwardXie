@@ -5,8 +5,6 @@
 !(https://github.com/LottieLee/EdwardXie.njnj.com/blob/master/u=3193434191,3138948162&fm=15&gp=0.jpg?raw=true)
 <p>我现在在玩一个叫cookie的女生
 <p>下面是我的约炮教程
- !(https://github.com/youyou-579/123/blob/master/2.8.jpg?raw=true)
-
 
 <p>我每天都会和我们班一个叫Cookie女学生发生性关系
 <p>约女学生是一项技能，这是我的绝招，我坚决不会告诉你们
